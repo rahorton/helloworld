@@ -1,1 +1,2 @@
-what's up?  This is crazy, i have no idea what I'm doing
+what's up?  This is crazy, i have no idea what I'm doing.  This is too much!  This is the most confusing class yet.  And yet so interesting because I feel that it will be very helpful and good to know.  I wish it was easier to understand.  
+I'm not sure what is up with this.
